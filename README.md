@@ -1,5 +1,5 @@
 # 💫 À Propos de moi :
-Je travail actuellement sur un projet de site web type blog, avec des actualités football pour les fans qui veulent rester informés
+Je travail actuellement sur un projet, je n'en dis pas plus 🤫
 
 
 ## 🌐 Réseaux Sociaux :
